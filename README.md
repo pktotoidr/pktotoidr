@@ -1,4 +1,3 @@
-<meta name="google-site-verification" content="gFSZkNCGFkkj29CgpDTvYXpnwbj-kr0HkEFBmL_gQUo" />
 <meta name="description" content="Temukan link alternatif login PKTOTO untuk akses taruhan online yang aman dan cepat.">
 <meta property="og:title" content="PKTOTO | Alternatif Link Login untuk Taruhan Online">
 <h1>PKTOTO &gt;&gt; Alternatif Link Login</h1>
